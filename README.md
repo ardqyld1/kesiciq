@@ -1,0 +1,2 @@
+# kesiciq
+Elimizden geldiğince 
